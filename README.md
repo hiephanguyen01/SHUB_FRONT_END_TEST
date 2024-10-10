@@ -1,0 +1,1 @@
+# Test Frontend Developer - SHub Technology JSC - T10.2024 
